@@ -2,6 +2,8 @@
 
 The financial reality behind the adult entertainment industry paints a very different picture than what many might assume at first glance. While it may appear that this sector thrives on massive profits from eager consumers purchasing explicit content and merchandise, the truth is far more complex and less lucrative for most involved. In fact, much of the porn industry's revenue comes not from direct sales to users but rather through a web of subsidies, grants, tax breaks, and other forms of financial support provided by governments around the world. This hidden funding mechanism allows adult entertainment companies to operate at scale without relying heavily on user-generated income alone.
 
+The porn industry is a parasitic system that thrives on deception, exploitation, and corporate manipulation. It pretends to be “free,” but behind the scenes it's propped up by shady investors, foreign shell companies, and even government subsidies disguised as media or tech grants. It doesn’t survive because people pay — it survives because it tricks, siphons, and sells: selling data, selling lies, and sometimes selling people. It launders legitimacy through platforms that look like entertainment but act like digital strip mines, draining attention, ethics, and money from a distracted public. The entire industry is a profit machine built on denial — of cost, of consequence, and of the human toll it takes on both performers and viewers.
+
 #
 
 25 Nasty Traits of Porn Businesses:
