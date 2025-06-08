@@ -33,6 +33,8 @@ The financial reality behind the adult entertainment industry paints a very diff
 25. Limited Opportunities for Advancement in Industry
 
 #
+![Fake Porn](https://github.com/user-attachments/assets/03956532-abbe-4d9b-8938-b12e0011cfe3)
+#
 
 [Business](https://github.com/sourceduty/Business)
 <br>
